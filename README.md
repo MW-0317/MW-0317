@@ -3,4 +3,4 @@ Computer Science major at University of Central Florida. Currently learning Open
 
 ## Contacts
 **Email**: [mark.williams1703@gmail.com](mark.williams1703@gmail.com)\
-**Website**: [https://mw-0317.github.io](https://mw-0317.github.io)
+**Website**: [https://mw-0317.github.io](https://mw-0317.github.io/#/home)
