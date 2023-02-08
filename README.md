@@ -1,3 +1,6 @@
 # Mark Williams
 ------------------
-|Contact|mark.williams1703@gmail.com|(502) 795-8464|
+_**Contacts**_: 
+
+_Email_: [mark.williams1703@gmail.com](mark.williams1703@gmail.com)
+_Website_: [https://mw-0317.github.io](https://mw-0317.github.io)
